@@ -3,6 +3,6 @@ assistance-request-naltunina2404 created by GitHub Classroom
 
 Assistance request
 
-Anastasiia Atuninа, BEC181
+Anastasiia Altuninа, BEC181
 
 Motivation + creative task
